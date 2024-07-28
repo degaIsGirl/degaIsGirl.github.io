@@ -1,1 +1,0 @@
-# degaIsGirl.github.io
